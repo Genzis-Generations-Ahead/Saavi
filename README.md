@@ -11,7 +11,7 @@ Join us as we embark on our journey towards the neural frontier.
 
 ---
 [![Watch the demo](https://img.youtube.com/vi/65Zy2qJvzDY/0.jpg)](https://youtu.be/65Zy2qJvzDY)
-### Embark on this fun journey with SĀVI and ZING!
+### Embark on this fun journey with SĀVI and ZING !!
 
 <div align="center">
 
